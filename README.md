@@ -6,4 +6,4 @@ Hyderabad branch address: #401, Nukala Residency, Jai Hind Enclave, Hitech City,
 
 
 Singapore branch address: Blk 180, # 05-05, Boon lay drive, Boon lay,Singapore 642180
-singapore ceo: MALYADRI MARTHALA
+
